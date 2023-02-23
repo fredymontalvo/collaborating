@@ -36,8 +36,5 @@ Die geschälten Kartoffeln auf der großen Reibe reiben, mit viel Salz und wenig
 
 Portionsweise Reibekuchen ausbacken, sie müssen in Öl schwimmen, danach auf Küchenkrepp abtropfen lassen.
 
-gfgfgfg
-fgfgfg
-fgfgfgf
-fgfdfdf
+
 
